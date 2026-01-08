@@ -3,7 +3,7 @@
 ### 📚 **Education**
 **University of Moratuwa, Sri Lanka**  
 B.Sc. Engineering (Hons) in Biomedical Engineering | **June 2022 – Present**  
-- **Cumulative GPA:** 3.72  
+- **Cumulative GPA:** 3.76  
 
 **Newstead Girls’ College, Negombo, Sri Lanka**  
 GCE Advanced Level in Mathematics, Physics, and Chemistry | **Jan 2012 – Oct 2020**  
